@@ -1,8 +1,8 @@
 ### Hi there 👋
 
-> A useless student! Geologists don't know Geology.  
+> A useless student! Geologists don't know Geology.👧🏼  
 --- 
-+ contact me:  
++ contact me🦝:  
    + blog:[Jaywxl](https://bl.jaywxl.tk)
    + telegram:[Jaywxl](https://t.me/Jaywxl)
    + mail:2410512860@qq.com
