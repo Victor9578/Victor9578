@@ -5,7 +5,7 @@
 + contact me🦝:  
    + blog:[Jaywxl](https://bl.jaywxl.tk)
    + telegram:[Jaywxl](https://t.me/Jaywxl)
-   + mail:2410512860@qq.com
+   + mail:jaywxll@outlook.com
 <!--
 **Victor9578/Victor9578** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
