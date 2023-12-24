@@ -3,7 +3,7 @@
 > A useless student! Geologists don't know Geology.👧🏼  
 --- 
 + contact me🦝:  
-   + blog:[Jaywxl](https://bl.jaywxl.tk)
+   + blog:[Jaywxl](https://bl.jaywxl.eu.org)
    + telegram:[Jaywxl](https://t.me/Jaywxl)
    + mail:jaywxll@outlook.com
 <!--
